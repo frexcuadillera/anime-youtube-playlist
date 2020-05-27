@@ -45,6 +45,8 @@ Kandagawa Jet Girls OVA (SUB) https://www.youtube.com/watch?v=oGm18ANtNzw
 
 Kandagawa Jet Girls Recap (SUB) https://www.youtube.com/watch?v=haCxkuJOzFo
 
+Kouya no Kotobuki Hikoutai (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3braJYcy3DKNjAI_ThrCxz
+
 Long Riders! (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl1BghSr9iRrcOmDrsp7IIuN
 
 Nakanohito Genome [Jikkyouchuu] (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl0Teg-jmcUbCFtcbiDHcBi-
@@ -61,6 +63,6 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tsueee Kuse ni Shinchou Sugiru (SUB) https:/
 
 Taimadou Gakuen 35 Shiken Shoutai (SUB) https://www.youtube.com/watch?v=9UYAdjeXlyQ
 
-Toaru Kagaku no Accelerator https://www.youtube.com/playlist?list=PLwLSw1_eDZl0jE0TQ4cxDWPt0zHi9dRGc
+Toaru Kagaku no Accelerator (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl0jE0TQ4cxDWPt0zHi9dRGc
 
 Z/X: Code Reunion (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3y8WLgYRXsmLcR2kt42jrQ
