@@ -21,6 +21,10 @@ Gleipnir (SUB) https://www.youtube.com/playlist?list=PLxSscENEp7JhHQTmes2_rNlNCK
 
 Goblin Slayer (SUB) https://www.youtube.com/playlist?list=PLMk7nVbJyr8rPIzAGtIXWH79CrYM9WA1V
 
+Hyouka (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl28iypqyY3tsSz7P1BByLiK
+
+Hyouka: Motsubeki Mono wa https://www.youtube.com/watch?v=YMxyrWrKxYA
+
 Kandagawa Jet Girls (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3kpZfsZ4e25RH25ZyYHk_j
 
 Kandagawa Jet Girls OVA (SUB) https://www.youtube.com/watch?v=oGm18ANtNzw
