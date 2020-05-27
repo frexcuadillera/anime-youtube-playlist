@@ -7,16 +7,23 @@ List of anime playlist links on YouTube
 * Indicate if (SUB) or (DUB) and use separate links entries if both are available
 * Make entries in alphabetical order
 * Use youtube.com/playlist?list=<list key here> for playlists or youtube.com/watch?v=<video key here> if the series is bundled in video. Remove unnecessary attributes.
+* Full screen videos only
 * Example format: 
   
 
 # List
 
-Danganronpa: Kibou no Gakuen to Zetsubou no Koukousei The Animation (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2oW4bATqEoAh2xpGMTSXKM
+Araburu Kisetsu no Otome-domo yo. (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2eZZ6p7yUCWPiJuj6dv_bp
 
 Gleipnir (SUB) https://www.youtube.com/playlist?list=PLxSscENEp7JhHQTmes2_rNlNCK7hMT_Nt
 
 Goblin Slayer (SUB) https://www.youtube.com/playlist?list=PLMk7nVbJyr8rPIzAGtIXWH79CrYM9WA1V
+
+Kandagawa Jet Girls (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3kpZfsZ4e25RH25ZyYHk_j
+
+Kandagawa Jet Girls OVA (SUB) https://www.youtube.com/watch?v=oGm18ANtNzw
+
+Kandagawa Jet Girls Recap (SUB) https://www.youtube.com/watch?v=haCxkuJOzFo
 
 Long Riders! (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl1BghSr9iRrcOmDrsp7IIuN
 
