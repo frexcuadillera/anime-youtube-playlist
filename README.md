@@ -13,7 +13,7 @@ List of anime playlist links on YouTube
 
 # List
 
-Anne Happy♪ https://www.youtube.com/playlist?list=PLwLSw1_eDZl2MhcQ1tyjn8GKl8KOWvySK
+Anne Happy♪ (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2MhcQ1tyjn8GKl8KOWvySK
 
 Araburu Kisetsu no Otome-domo yo. (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2eZZ6p7yUCWPiJuj6dv_bp
 
