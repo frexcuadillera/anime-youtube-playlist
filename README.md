@@ -65,4 +65,6 @@ Taimadou Gakuen 35 Shiken Shoutai (SUB) https://www.youtube.com/watch?v=9UYAdjeX
 
 Toaru Kagaku no Accelerator (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl0jE0TQ4cxDWPt0zHi9dRGc
 
+Uchi no Ko no Tame naraba, Ore wa Moshikashitara Maou mo Taoseru kamo Shirenai. (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3hnDBJquengxjETgIxDai-
+
 Z/X: Code Reunion (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3y8WLgYRXsmLcR2kt42jrQ
