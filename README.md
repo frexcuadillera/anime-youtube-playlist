@@ -22,6 +22,8 @@ Long Riders! (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl1BghSr9iRrc
 
 Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl0fxMZfFjcKLnL0Hj6cw3Op
 
+Rakudai Kishi no Cavalry (DUB) https://www.youtube.com/watch?v=4ib-KB9ijKM
+
 Shinchou Yuusha: Kono Yuusha ga Ore Tsueee Kuse ni Shinchou Sugiru (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl0hI_XedalMVIvHcVLOouiv
 
 Taimadou Gakuen 35 Shiken Shoutai (SUB) https://www.youtube.com/watch?v=9UYAdjeXlyQ
