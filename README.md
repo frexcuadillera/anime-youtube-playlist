@@ -17,6 +17,10 @@ Anne Happy♪ (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2MhcQ1tyjn
 
 Araburu Kisetsu no Otome-domo yo. (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2eZZ6p7yUCWPiJuj6dv_bp
 
+Chuubyou Gekihatsu Boy (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl1Nr5hw1RMKioVWWXGlPYwI
+
+Chuubyou Gekihatsu Boy Special (SUB) https://www.youtube.com/watch?v=h6xkVlLfxQ8
+
 Gakuen Babysitters (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl2a-5raJohuneXVt2b6m5lg
 
 Gleipnir (SUB) https://www.youtube.com/playlist?list=PLxSscENEp7JhHQTmes2_rNlNCK7hMT_Nt
@@ -32,6 +36,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen OVA (
 Hyouka (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl28iypqyY3tsSz7P1BByLiK
 
 Hyouka: Motsubeki Mono wa (SUB) https://www.youtube.com/watch?v=YMxyrWrKxYA
+
+Joshikousei no Mudazukai https://www.youtube.com/playlist?list=PLwLSw1_eDZl3a6WBPlpPJlaNKNGwHGA08
 
 Kandagawa Jet Girls (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl3kpZfsZ4e25RH25ZyYHk_j
 
