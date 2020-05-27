@@ -21,6 +21,10 @@ Gleipnir (SUB) https://www.youtube.com/playlist?list=PLxSscENEp7JhHQTmes2_rNlNCK
 
 Goblin Slayer (SUB) https://www.youtube.com/playlist?list=PLMk7nVbJyr8rPIzAGtIXWH79CrYM9WA1V
 
+Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl1M7sDB0qBDBKDKUJnHciM6
+
+Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen OVA (SUB) https://www.youtube.com/watch?v=D3b6qTMobr8
+
 Hyouka (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl28iypqyY3tsSz7P1BByLiK
 
 Hyouka: Motsubeki Mono wa https://www.youtube.com/watch?v=YMxyrWrKxYA
