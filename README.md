@@ -44,12 +44,14 @@ List of anime playlist links on YouTube
 | Nakanohito Genome [Jikkyouchuu] (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl0Teg-jmcUbCFtcbiDHcBi- |
 | Nakanohito Genome [Jikkyouchuu]: Knots of Memories (SUB) | https://www.youtube.com/watch?v=3h4_7TgqtH0 |
 | Netoge no Yome wa Onnanoko ja Nai to Omotta? (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl0_pFZjGAyXj8oQkUF566Lq |
+| No Game No Life (SUB) | https://www.youtube.com/playlist?list=PLxSscENEp7JglGq-5PMtbewK96Z_7Au8J |
 | Isekai Quartet 2 (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl14e1fTCwo2OtJSMxbYnetO |
 | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl0fxMZfFjcKLnL0Hj6cw3Op |
 | Rakudai Kishi no Cavalry (DUB) | https://www.youtube.com/watch?v=4ib-KB9ijKM |
 | Rokujouma no Shinryakusha!? (TV) (SUB) | https://www.youtube.com/watch?v=890aV4dbIh0 |
 | Saijaku Muhai no Bahamut (SUB) | https://www.youtube.com/watch?v=1pfIwlM5XYw |
 | Shinchou Yuusha: Kono Yuusha ga Ore Tsueee Kuse ni Shinchou Sugiru (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl0hI_XedalMVIvHcVLOouiv |
+| Shironeko Project: Zero Chronicle (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl34SUfF4zwk63GlgYc4Jwhy |
 | Taimadou Gakuen 35 Shiken Shoutai (SUB) | https://www.youtube.com/watch?v=9UYAdjeXlyQ |
 | Toaru Kagaku no Accelerator (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl0jE0TQ4cxDWPt0zHi9dRGc |
 | Uchi no Ko no Tame naraba, Ore wa Moshikashitara Maou mo Taoseru kamo Shirenai. (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl3hnDBJquengxjETgIxDai- |
