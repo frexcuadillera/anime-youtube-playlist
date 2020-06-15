@@ -21,7 +21,7 @@ List of anime playlist links on YouTube
 | Gakuen Babysitters (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl2a-5raJohuneXVt2b6m5lg |
 | Gleipnir (SUB) | https://www.youtube.com/playlist?list=PLxSscENEp7JhHQTmes2_rNlNCK7hMT_Nt |
 | Goblin Slayer (SUB) | https://www.youtube.com/playlist?list=PLMk7nVbJyr8rPIzAGtIXWH79CrYM9WA1V |
-| Gochuumon wa Usagi Desu ka?? (SUB) https://www.youtube.com/playlist?list=PLwLSw1_eDZl0smcI8BvC5vX6LEwhwgwF6 |
+| Gochuumon wa Usagi Desu ka?? (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl0smcI8BvC5vX6LEwhwgwF6 |
 | Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl1M7sDB0qBDBKDKUJnHciM6 |
 | Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan wo Erandeiraremasen OVA (SUB) | https://www.youtube.com/watch?v=D3b6qTMobr8 |
 | Hyouka (SUB) | https://www.youtube.com/playlist?list=PLwLSw1_eDZl28iypqyY3tsSz7P1BByLiK |
