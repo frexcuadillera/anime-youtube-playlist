@@ -1,10 +1,11 @@
 # anime-youtube-playlist
-List of anime playlist links on YouTube
+List of anime video/playlist links on YouTube
 
 # Naming Rules
 
-* Use myanimelist.net registered name
-* Indicate if (RAW), (SUB) or (DUB) and use separate links entries if both are available
+* Use myanimelist.net registered title
+* Enter N/A if alternative title is not available
+* Indicate if RAW, SUB or DUB in TYPE column and use separate links entries if both are available
 * Make entries in alphabetical order
 * Use youtube.com/playlist?list=<list key here> for playlists or youtube.com/watch?v=<video key here> if the series is bundled in video. Remove unnecessary attributes.
 * Full screen videos only
